@@ -1,0 +1,5 @@
+Finalmente llegáis a vuestro destino, una ciudad algo pequeña pero con mucho encanto. Una ciudad con mucha fiesta pero que también esconde muchísima cultura y es extrañademente humilde. Os esperábais una gran metropolis como lugar idoneo para la construcción del templo, no una pequeña ciudad. Observáis además que hay una figura que destaca, un tal Beardo Germánico que resulta ser alcalde de la ciudad. Hay carteles suuyos por todos lados publicitando la apertura del templo, la ciudad o las conocidas discotecas a la par que su producto estrella, la hidromiel blanca, solo para mayores de 20 años. En esta ciudad como esperáis hay de todo, plaza, hostales, bares, discotecas, iglesias, templos y tiendas para abasteceros. El conductor del carromato os dijo que tenéis que entregar la carta en el hostal BlancaPiedra que está cerca de una famosa plaza.
+![[Mapa ROCABLANCA.png|700]](Que hagan lo que quieran, comprar, taberna, disco,... IMPROVISA)
+
+(Tira percepción de manera secreta) (Dile a quien tengga la percepción más alta)
+"Has visto algo inusual, eres observador y en esta pequeña ciudad no encaja alo que has visto, un extraño [[Camino de arena]]"
