@@ -1,0 +1,1 @@
+funciona como una Shauth Blade pero en los sueños tiene un +5 al hit.

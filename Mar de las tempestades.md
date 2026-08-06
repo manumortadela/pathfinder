@@ -1,0 +1,5 @@
+Se despiertan en un barco, truenos se pueden escuchar alrededor del equipo. Sin embargo, no son solo ruidos de la naturaleza, no están solos, son parte de una tripulación, la tripulación de Posidonio. Y esto no parece un sueño cualquiera, más que un sueño parece un... recuerdo. Si intentan averiguar con historia quien es Posidonio, podrían saber que es un alto elfo que se corrompió por culpa de un objeto maldito.
+
+> Especialidades del sueño: Pueden respirar bajo el agua 1 hora y tienen una velocidad nadando de 5 pies menos que su velocidad en tierra.
+
+Aparecen en la bodega, desde arriba oyen a Posidonio: "Tripulación!, Hoy es el día, hoy uno de vosotros será tremendamente recompensado. Nos encontramos en el Mar de las Tempestades, lugar donde se esconde el libro del conocimiento oculto. Aquel que consiga nadar y encontrarme el libro será recompensado con un objeto especial que he estado ocultando. Debéis conseguir nadar por debajo del mar y encontrar a la criatura marina, no sé muy bien su aspecto, pero es la más grande y temible que podáis observar. Aquel que consiga arrebatarle el libro será mi protegido y será merecedor de la recompensa." "1,2,3 Posidonio!"
