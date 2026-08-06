@@ -3,3 +3,5 @@ Finalmente llegáis a vuestro destino, una ciudad algo pequeña pero con mucho e
 
 (Tira percepción de manera secreta) (Dile a quien tengga la percepción más alta)
 "Has visto algo inusual, eres observador y en esta pequeña ciudad no encaja alo que has visto, un extraño [[Camino de arena]]"
+
+[[Hostal de Rocablanca]]

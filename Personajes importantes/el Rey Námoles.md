@@ -1,0 +1,2 @@
+En realidad es un cambiaformas, con la skins
+de rey Námoles tiene las stats de un Blade magus. Sin embargo, en sus sueños tiene sus stats verdaderas y no se puede tranformar ahí es un goblin Necromancer de élite. Realmente, no es el enviado del Dios de la Humanidad. El verdadero enviado es un hombre humilde, se llama Paco y no tiene poderes especiales (flow Jesús). Paco está en la guarida de Námoles siendo preso. El Dios de la Humanidad no hace nada porque sus caminos son misteriosos, el sabe lo que acontecerá y no le gusta entrometerse.
