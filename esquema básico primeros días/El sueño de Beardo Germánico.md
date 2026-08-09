@@ -2,7 +2,7 @@ Estáis en una zona inusual, muy montañosa, parece una extraña isla alejada de
 
 	ESPECIALIDADES DEL SUEÑO: Fuerza de Grip aumentada, no se cansan cuando están
 	agarrados a cualquier saliente. Daño de caída aumentado (a mi gusto). Salto
-	más alto (todo se debe a que la gravedad es menor)
+	más alto
 
 Cualquiera que tire y acierte percepción para averiguar cosas del sueño sabrá las especialidades.
 
