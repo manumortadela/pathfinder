@@ -1,0 +1,1 @@
+Es un idealista muy afectado por el libro del conocimiento oculto. Se lo entregó a Paco. Gracias a él pudo transformarse. Actualmente está en la uarida de Paco, guardandole el libro.

@@ -1,0 +1,1 @@
+El lider de la casa de los gigantes. Es un minotauro cazador muy noble que guardaba el templo. Su templo fue bombardeado y atacado por Paco, lo usa como guarida actualmente para guardar su cuerpo real. Procopio está actualmente en un pueblo perdido recuperándose. Recordando cada día todo lo que pasó.

@@ -1,7 +1,8 @@
 Os transportáis a un gigante bosque. Retumba magia, es hogar de muchísimas criaturas (si lo intentan reconocer descubren que fue la tierra de Adroomar, bombardeada por estados afines al rey námoles hace unas semanas). Al entrar aparecen en la parte de abajo del mapa. Deberían avanzar de manera sigilosa. Si no lo hacen, aparecen los habitantes del pueblo a atacarlos. Son 2 centaur herbalist y 2 minotaur hunter.![[rpm3br0590h51.jpg]]
 
-En la entrada al templo por abajo hay dos spear launchers, una a cada lado que alertarán a los habitantes. Uno de ellos es Procopio. Procopio es un minotaur hunter, rey del templo que es consciente del valor que este templo tiene. La magia resuena de un modo especial, es el luggar idoneo para lanzar uno de esos conjuros poderosísimos que cambian el destino de la tierra.
+En la entrada al templo por abajo hay dos spear launchers, una a cada lado que alertarán a los habitantes. Uno de ellos es [[Procopio]]. Procopio es un minotaur hunter, rey del templo que es consciente del valor que este templo tiene. La magia resuena de un modo especial, es el luggar idoneo para lanzar uno de esos conjuros poderosísimos que cambian el destino de la tierra.
 
 >>Especialidades del sueño: La magia es más poderosa, las DCs para hechizos aumentan en 2 y las tiradas de ataque de conjuro también. Además todos tienen vulnerabilidad 2 a la magia.
 
 Si los descubren entrando, les preguntarán. Procopio es consciente de la amenaza que es Paco, ha sufrido ya varios ataques. Si ellos acceden en ayudar a Procopio, les ofrecerá un tatuaje de frostwalker pattern. Escapan una vez han matado a Procopio o este les haya hecho el tatuaje.
+También podrían colarse dentro. Detrás de la estatua hay unas 1000 PO pero los minotauros y centauros tratarían de matarlos.

@@ -1,4 +1,4 @@
-Se despiertan en un barco, truenos se pueden escuchar alrededor del equipo. Sin embargo, no son solo ruidos de la naturaleza, no están solos, son parte de una tripulación, la tripulación de Posidonio. Y esto no parece un sueño cualquiera, más que un sueño parece un... recuerdo. Si intentan averiguar con historia quien es Posidonio, podrían saber que es un alto elfo que se corrompió por culpa de un objeto maldito.
+Se despiertan en un barco, truenos se pueden escuchar alrededor del equipo. Sin embargo, no son solo ruidos de la naturaleza, no están solos, son parte de una tripulación, la tripulación de [[Posidonio]]. Y esto no parece un sueño cualquiera, más que un sueño parece un... recuerdo. Si intentan averiguar con historia quien es Posidonio, podrían saber que es un alto elfo que se corrompió por culpa de un objeto maldito.
 
 > Especialidades del sueño: Pueden respirar bajo el agua 1 hora y tienen una velocidad nadando de 5 pies menos que su velocidad en tierra.
 
