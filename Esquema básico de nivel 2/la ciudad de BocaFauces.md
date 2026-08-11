@@ -1,0 +1,1 @@
+Esto sí es una ciudad más centrica. Es una metrópolis avanzadísima. Está llena de pistoleros, camellos, drogatas y mercenarios. Está cerca de La Casa de los Giggantes. Ahora llamada la ruina de estas criaturas. Fue brutalmente bombardeada pero el Rey Námoles dijo que allí dentro se estaban haciendo reparaciones (es en verdad la guarida de Paco).
